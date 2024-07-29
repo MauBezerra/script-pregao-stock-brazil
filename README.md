@@ -1,0 +1,1 @@
+# script-pregao-stock-brazil
